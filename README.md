@@ -4,6 +4,9 @@
 
 - 📫 How to reach me **dilarapiinar@gmail.com**
 
+- Please click on the link to review our HUMAN RESOURCES MANAGEMENT SYSTEM PROJECT.
+https://www.linkedin.com/posts/ugcPost-7150192540858605568-Ywbo?utm_source=share&utm_medium=member_android
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/dilara-pinar-33945a235" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="dilarapinar" height="30" width="40" /></a>
