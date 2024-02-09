@@ -7,6 +7,9 @@
 - Please click on the link to review our HUMAN RESOURCES MANAGEMENT SYSTEM PROJECT.
 https://www.linkedin.com/posts/ugcPost-7150192540858605568-Ywbo?utm_source=share&utm_medium=member_android
 
+- Please click on the link to review our BILGE ADAM EXAM APPLICATION PROJECT.
+[https://www.linkedin.com/posts/ugcPost-7150192540858605568-Ywbo?utm_source=share&utm_medium=member_android](https://www.linkedin.com/posts/umut-%C3%B6ncel-1b3194a6_merhaba-sevgili-ba%C4%9Flant%C4%B1lar%C4%B1m-bilgeadam-activity-7161622758915796992-ZUP9?utm_source=share&utm_medium=member_desktop)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/dilara-pinar-33945a235" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="dilarapinar" height="30" width="40" /></a>
