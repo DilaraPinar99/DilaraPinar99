@@ -8,7 +8,6 @@
 https://www.linkedin.com/posts/ugcPost-7150192540858605568-Ywbo?utm_source=share&utm_medium=member_android
 
 - Please click on the link to review our BILGE ADAM EXAM APPLICATION PROJECT.
-- 
 https://www.linkedin.com/feed/update/urn:li:ugcPost:7241417674025582594/
 
 <h3 align="left">Connect with me:</h3>
